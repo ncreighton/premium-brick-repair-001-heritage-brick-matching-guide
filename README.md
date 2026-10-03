@@ -1,0 +1,2 @@
+# premium-brick-repair-001-heritage-brick-matching-guide
+Hunting for the perfect heritage brick match is costing you hours of trial-and-error and expensive material waste. The Heritage Brick Matching Guide Template eliminates guesswork by organizing every brick type, color variation, and sourcing detail in one searchable Notion workspace.  Stop juggling spreadsheets, supplier catalogs, and photo archives
